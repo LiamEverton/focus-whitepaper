@@ -14,7 +14,7 @@ The winner would get access to the university's resources and a 1000GBP fund giv
 
 Within a few minutes I already came up with what we would later decide upon.
 
-We were the smallest group. Most teams had atleast 5 members, and with only ~5 hours to actually build something, we decided to stay up through the night so that we could not only deliever a presentation, but a prototype and a whitepaper to go along with an idea we believed to be well-worth the investment of our time.
+We were the smallest group. Most teams had atleast 5 members, and with only ~5 hours to actually build something, we decided to stay up through the night so that we could not only deliver a presentation, but a prototype and a whitepaper to go along with an idea we believed to be well-worth the investment of our time.
 
 ## My Team
 
@@ -52,7 +52,7 @@ I told my teammates that we can hold up in my dorm while we hash the rest out, s
 
 I demanded a lot of out of my team, and they knew why. We needed real data. If I was to make the argument that this was a eco-friendly option, we needed evidence. I made sure Wizoid knew what were looking for, but boy did we have to dig for that data.
 
-The whitepaper was in okay hands, but this was before I studied Copywriting or any art of writing a perfect proposal. I was very much in my infancy of delievering these types of things, but everyone agreed that it'd be best for me to do the writing, since it was my idea, I had to see it through.
+The whitepaper was in okay hands, but this was before I studied Copywriting or any art of writing a perfect proposal. I was very much in my infancy of delivering these types of things, but everyone agreed that it'd be best for me to do the writing, since it was my idea, I had to see it through.
 
 In the end, we got it all done and we was all very tired. I was planning on taking my team out to eat the day after, to celebrate a win. I was hopeful.
 
@@ -70,7 +70,7 @@ We were pretty disheartened, knowing we had done everything we could and more. W
 
 ## Lessons Learned
 
-1. I knew I had to improve my public speaking. It went far better than expected, but there was definitely room for improvements. I should have practiced more and used the powerpoint to deliever a laser focus on what we plan to provide.
+1. I knew I had to improve my public speaking. It went far better than expected, but there was definitely room for improvements. I should have practiced more and used the powerpoint to delivering a laser focus on what we plan to provide.
 
 2. I built confidence as a leader. We had a very successful run, considering the time constraints and the lack of motivation provided by the competitions somewhat dire rewards (massively reduced from years before). We wanted to see this idea through.
 
